@@ -5,3 +5,4 @@ Meu nome é Daniel Augusto Ferrazza :fire: (um nome insano :fire: :100:)
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos :fire:
 
 ### Você **NÃO** pode entrar em contato comigo :mailbox: :fire: :100: 🤓
+https://tenor.com/bXB8s.gif
