@@ -7,3 +7,4 @@ Meu nome é Daniel Augusto Ferrazza :fire: (um nome insano :fire: :100:)
 ### Você **NÃO** pode entrar em contato comigo :mailbox: :fire: :100: 🤓
 ![](https://media.tenor.com/GfxDEsOxZUUAAAAC/manoel-gomes-caneta-azul.gif)
 ![](https://media.tenor.com/THWirYcqOxMAAAAM/cat-cat-memes.gif)
+![](https://media.tenor.com/t7rftXtub88AAAAC/among-us.gif)
