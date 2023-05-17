@@ -7,6 +7,5 @@ Meu nome é Daniel Augusto Ferrazza :fire: (um nome insano :fire: :100:)
 - [https://alura.com.br](https://ov11-engine.flamingtext.com/netfu/tmp28000/coollogo_com-301653841.gif)
 
 ### Você **NÃO** pode entrar em contato comigo :mailbox: :fire: :100: 🤓
-![](https://de5-engine.flamingtext.com/netfu/tmp28001/coollogo_com-2301467.gif)
 ![](https://media.tenor.com/GfxDEsOxZUUAAAAC/manoel-gomes-caneta-azul.gif)
 ![](https://media.tenor.com/THWirYcqOxMAAAAM/cat-cat-memes.gif)
